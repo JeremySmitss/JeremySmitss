@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JeremySmitssF ?
-- 🌱 Verpleegkundigr
+- 🌱 Verpleegkundige
 - 💞️ In Love
 
 ---
